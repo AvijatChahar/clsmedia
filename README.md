@@ -1,4 +1,3 @@
-# clsmedia
 # 📈 CLS Media
 
 Social Media Marketing Agency
