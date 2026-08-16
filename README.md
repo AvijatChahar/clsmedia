@@ -6,7 +6,7 @@ Social Media Marketing Agency
 
 > *No vague promises. Clear systems that get clients, calls, and cash.*
 
-🌐 **[clsmedia.avijatlabs.com](https://avijatlabs.com/clsmedia/index.html)** · Performance-based options available.
+🌐 **[clsmedia](https://avijatchahar.github.io/clsmedia/)** · Performance-based options available.
 
 ---
 
